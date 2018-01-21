@@ -24,6 +24,7 @@ Favourite music bands:
 * The doors
 * Arctic Monkeys
 * The Last Shadow Puppets
+* Imagine Dragons
 
  -
  -
