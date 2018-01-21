@@ -1,4 +1,3 @@
-# example
 # hw1
 ### homework alina
 ###### personal information
