@@ -13,7 +13,7 @@
 
 **Credo: *"memento mori"***
 
-  [Education](https://www.hse.ru "heaven")
+  [Education: HSE](https://www.hse.ru "heaven")
   
 The main things in my life:
 1. creation
