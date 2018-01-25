@@ -1,6 +1,6 @@
 # hw1
 ### homework alina
-###### personal information
+###### _personal information_
 
 
 *First name and Surname: Alina Saati*
