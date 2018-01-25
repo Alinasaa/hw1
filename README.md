@@ -17,19 +17,19 @@
 
   [Education: HSE](https://www.hse.ru "heaven")
   
-The main things in my life:
+_The main things in my life:_
 1. creation
 2. illumination
 3. catharsis
 
-Любимые группы:
+_Любимые группы:_
 * The doors
 * Arctic Monkeys
 * The Last Shadow Puppets
 * Imagine Dragons
 
 
-Любимые актеры
+_Любимые актеры:_
  - Ксавье Долан
  - Пол Дано
  - Мэтт Деймон
