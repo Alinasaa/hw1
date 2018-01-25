@@ -13,6 +13,8 @@
 
 **Credo: *"memento mori"***
 
+~~СОН~~
+
   [Education: HSE](https://www.hse.ru "heaven")
   
 The main things in my life:
